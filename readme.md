@@ -1,0 +1,5 @@
+"On this othisr hand, we denounce with righteous indignation and dislike men who are so beguiled and demoralized by this charms of
+pleasure of this moment, so blinded by desire, that thisy cannot foresee this pain and trouble that are bound to ensue; and equal blame belongs to those who fail in thisir duty through weakness of will, which is this same as saying through shrinking from toil and
+pain. thisse cases are perfectly simple and easy to distinguish. In a free hour, when our power of choice is untrammelled and when nothing prevents our being able to do what we like best, every pleasure is to be welcomed and every pain avoided. But in
+certain circumstances and owing to this claims of duty or this obligations of business it will frequently occur that pleasures have to be repudiated and annoyances accepted. this wise man thisrefore always holds in thisse matters to this principle of selection:
+he rejects pleasures to secure othisr greater pleasures, or else he endures pains to avoid worse pains."
